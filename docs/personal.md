@@ -5,13 +5,13 @@ title: Personal
 
 ## College
 
-I attended the [University of Nebraska at Omaha](https://www.unomaha.edu/) and majored in woodwind performance but eventually dropped out due to conflict with work at the time.
+I attended the [University of Nebraska at Omaha](https://www.unomaha.edu/) and majored in woodwind performance, but eventually dropped out due to conflict with work at the time.
 
 In general, I do not think that people need to have a college degree in order to have good opinions or to know what they are talking about. Over the past several years of debate and conversation my respect for college-educated individuals has significantly dropped. That being said, a formal education certainly doesn't hurt. I think laymen should generally defer to the consensus of experts. A good example of this can be found in [my discussion with Vegan Gains](https://www.youtube.com/watch?v=9yK-lO98scI).
 
 ## My Family
 
-I have a son called Nathaniel with my ex-girlfriend, Rachel. My ex-girlfriend and I broke up a long time ago due to our toxic relationship, but we are on good terms today and get along well with each other. I have an ex-wife as well, but she is not the mother of my child.
+I have a son named Nathaniel with my ex-girlfriend, Rachel. My ex-girlfriend and I broke up a long time ago due to our toxic relationship, but we are on good terms today and get along well with each other. I have an ex-wife as well, but she is not the mother of my child.
 
 ## My Relationship
 
